@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [worldinova.web.app](worldinova.web.app)
 
-- 📫 How to reach me **customerworldinova@gmail.com**
+- 📫 How to reach me **himantharw@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
